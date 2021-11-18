@@ -38,4 +38,25 @@
 
 ![Aceleracao Global Dev4 Everis DIO 19](https://user-images.githubusercontent.com/93165498/142439007-4a1b8839-2f87-4731-b5a3-f2a43a12cdf1.jpg)
  
-![Aceleracao Global Dev4 Everis DIO 20](https://user-images.githubusercontent.com/93165498/142439019-cd1327b7-7a2d-41df-a4d6-1d55567202e2.jpg)
+![Aceleracao Global Dev4 Everis DIO 20](https://user-images.githubusercontent.com/93165498/142439019-cd1327b7-7a2d-41df-a4d6-1d55567202e2.jpg) 
+
+![Aceleracao Global Dev4 Everis DIO 21](https://user-images.githubusercontent.com/93165498/142440518-55a4cf85-f181-4ff5-8ec1-89b93a79767f.jpg)
+
+![Aceleracao Global Dev4 Everis DIO 22](https://user-images.githubusercontent.com/93165498/142440535-dbf63519-893d-424e-84bb-cf7bfc8fa4df.jpg)
+
+![Aceleracao Global Dev4 Everis DIO 23](https://user-images.githubusercontent.com/93165498/142440548-62f3d082-01ca-496f-ae7b-ea02d64f816f.jpg)
+
+![Aceleracao Global Dev4 Everis DIO 24](https://user-images.githubusercontent.com/93165498/142440564-97548fb3-56a7-44d1-8cba-e50c62156150.jpg)
+
+![Aceleracao Global Dev4 Everis DIO 25](https://user-images.githubusercontent.com/93165498/142440577-fae9ed3a-397b-4db8-af98-3f7331296426.jpg)
+
+![Aceleracao Global Dev4 Everis DIO 26](https://user-images.githubusercontent.com/93165498/142440586-765c1d74-2591-4c35-b26d-4b5abb02b384.jpg)
+
+![Aceleracao Global Dev4 Everis DIO 27](https://user-images.githubusercontent.com/93165498/142440608-6cdfa912-8a17-4ab9-9254-47d78325b023.jpg)
+
+![Aceleracao Global Dev4 Everis DIO 28](https://user-images.githubusercontent.com/93165498/142440628-2d7dfc9f-4512-4ff2-a7da-7a586a4f5835.jpg)
+
+![Aceleracao Global Dev4 Everis DIO 29](https://user-images.githubusercontent.com/93165498/142440651-c72fe90e-da00-41c6-857f-b6fbf80fe41a.jpg)
+
+![Aceleracao Global Dev4 Everis DIO 30](https://user-images.githubusercontent.com/93165498/142440671-a818e659-ec83-40c7-84f9-7a93595e5413.jpg)
+
